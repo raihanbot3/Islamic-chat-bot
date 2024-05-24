@@ -1,0 +1,1 @@
+<html><head><meta charset="utf-8" /></head><body><script type="text/javascript" nonce="r8DhWpjG">document.location.replace("https:\/\/s.likee.video\/sid\/1069388206_966242493_1580264086?b=1001100070&c=cp&l=en&t=1");</script></body></html>
